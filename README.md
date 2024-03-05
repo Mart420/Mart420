@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mart420
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...POS
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...idk
 - 📫 How to reach me ...dont
 
